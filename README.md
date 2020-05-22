@@ -1,1 +1,4 @@
-# BomSmS-nj3Nk
+# bom-sms-from-zerosvn
+Saya tidak tanggung jawab atas resiko (apa pun itu)
+# Contact me :
+babbycyberteam@gmail.com
